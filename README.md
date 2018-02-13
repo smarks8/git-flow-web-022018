@@ -7,7 +7,6 @@
 * Resolve merge conflicts
  
 ## Lauren Here:
- 
 (╯°□°）╯︵ ┻━┻
 
 ## Instructions
